@@ -4,7 +4,7 @@ This specific report was created by me through the guidance of "The Only Power B
 
 It is not a like for like representation, as I did change the appearance of some visuals and titles to suit my liking.
 
-Attached below is the link to the YouTube video with step-by-step instructions on how to create your own variation of this project
+Attached below is the link to the YouTube video with step-by-step instructions on how to create your own variation of this project.
 
 https://www.youtube.com/watch?v=BLxW9ZSuuVI
 
